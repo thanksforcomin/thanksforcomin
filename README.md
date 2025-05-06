@@ -1,1 +1,1 @@
-please be patient i am an idiot
+Andrey Bahin is not that good at writing code
